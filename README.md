@@ -8,4 +8,4 @@ he/him 💜
 
 [CV](https://fsj.xyz/cv)
 
-[Polywork](https://polywork.fsj.xyz)
+[Polywork](https://polywork.com/fsj)
